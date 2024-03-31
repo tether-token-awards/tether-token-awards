@@ -1,1 +1,1 @@
-# tether-usdt-prize.github.io
+# tether-token-awards.github.io
